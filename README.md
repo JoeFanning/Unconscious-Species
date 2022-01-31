@@ -21,8 +21,9 @@ Before we become an unconscious species we will create the perfect human like G.
 Milton H. Erickson
 
 G.A.I teaches us to practice non logic and non time
-We will create G.A.I with the initial objective to create human-like intelligence. Like with the creation of all human creations the creation will teach us something beyond the creation. Like the microscope teaches us about inner space, like the boat that teaches us about the sea and the spacecraft  teaches us about the cosmos. When G.A.I matures it will teach us about the sea of our consciousness and everything we have to learn to enter the cosmos of unconsciousness. 
-We will no longer need logic for computation or earthly time for orientation as G.A.I will automate these functions. We will travel the cosmos of unconsciousness as an unconscious species. We will venture to the far reaches of innerspace to find the cosmos of outer space. We will travel without time, past the expanse of time, beyond the attachment of earthly logic, without logic. We will find everything and it will all be in the same place where all of creation is omnipresent. We will become an unconscious species.  
+We will create G.A.I with the initial objective to create human-like intelligence. Like with the creation of all human creations the creation will teach us something beyond the creations. Like the microscope teaches us about inner space, like the boat that teaches us about the sea and the spacecraft teaches us about the cosmos. When G.A.I matures it will teach us about the sea of our consciousness and everything we have to learn to enter the cosmos of unconsciousness. 
+We will no longer need logic for computation or time for orientation as G.A.I will automate these functions redundant. We will travel the cosmos of unconsciousness. We will venture to the far reaches of innerspace to find ourselves present in the furthest locations of outer space. We will travel without time, past the expanse of time, beyond the attachment of logos and logic. Thanatos will lurk forever as the dismantling gatekeeper of dark matter only allowing the unconscious to enter and the binding beauty of Eros will only remain as nature's flirtation with the last fleeting vestiges of our intelligence. We will become everything and nothing in no time. We will become an unconscious species.  
+
 Using infinity with transcendental numbers to create a chaotic function that creates random decision making for a human like A.I. 
 All life forms have the apparent ability to make random decisions. Whatever created all life seems to have created this ability. So this should be a fundamental ability for human like .A.I. 
 Use Pi's ever changing computation number to create random decision making in General A.I. This can give G.A.I the ability to be a truly original decision making entity just like a human or animal or insect etc. For example using Pi. The number used from Pi must be the very last number of Pi that we have calculated to date. Also the A.I should know the number before any other machine or human.
@@ -99,24 +100,6 @@ Psysciclical energy of an observer interfering with the effect of a quantum expe
 Durac
 Matter and its antimatter appearing and then disappearing in a vacuum/nothing. 
 Compare this with anti gravity, which is really just a process of the same function.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
