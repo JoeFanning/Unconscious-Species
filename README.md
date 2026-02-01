@@ -1,6 +1,7 @@
 Correct spelling mistakes
 <br>
-Work in progress
+Work in progress<br>
+'The more the darkness the easier for the light to shine.' Joe Fanning Sun 1st Feb 2026
 <br>
 <h1>Unconscious species</h1>
 
